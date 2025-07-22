@@ -268,9 +268,31 @@ healing our life，在自己的错误上不要向别人寻求support。错误（
 
 模仿mirroring也是让自己熟知，形成肌肉条件反射、记忆的过程，更重要的是这种习惯会反过来作用于我们的思维，比如一瞬间的灵光乍现。以此为基石我们可以构筑自己的“东西”，这是我们个性的体现也是自我发展的重要部分。
 
+> Almost all Masters and people of power suffer from too many demands on their time and too much information to absorb.
 
+我认为，对于真正热爱xxx的大师（亦或是身边处事通透之人），我们是可以与之做朋友的，因为他们的博学、经验丰富，他们可以轻易看出我们的目的、性格、以及resistance。就像是一位经验丰富教练可以通过简单几句话、简单试探轻而易举看出一个人是否真的想练。就像一位武术宗师仅凭一招便能让对手心服口服。就像技艺高超的人能在人的耳膜、眼皮上“跳舞”。我们钦佩他们的专业、学识、涵养、博学、老到...我们想成为他们，因此想接近他们。他们有时就像溢满水的壶会忍不住找人倒倒，有时会反过来像毒蛇一样狠狠咬我们一口，他们多面而丰富，可无论哪一面都是他们——他们是不屑于戴面具的。而对他们而言，“调教”新手就像猫把玩老鼠那样简单，比如一句话让人练三年。这样的人是真正的大师，是真正的值得拜的mentor。
 
+而在生活中，他们也是普通人，看得太明白而孤独，所以古时候他们会归隐山林，而现代他们（大概）会隐于市。他们会用他们的方式筛选人，包括顾客、学徒、朋友。
 
+甚至可以说，在生活、互联网上活跃着某些看起来年纪轻轻但已经在某些方面有了惊人建树的年轻人，尤其是国外（英语的重要性），这些人是乐于交流、分享的，有时甚至是不要回报的。重点是，我们能发现那些人，将那个或许很小的圈子发展成自己的领域吗？
+
+> Word will spread through the proper channels of your efficiency and your hunger to learn, and opportunities will come your way.
+
+我们因热爱而专注的神态、行为会体现在我们生活的各个方面，我们通过与人交互又将获得的反馈应用于我们的行为，当我们的行为与环境契合，当我们因规律生活而养成习惯而表现在日常生活中的行为被别人质疑、接受、当成风景之后，我们会在别人的脑海中形成一道“熟悉而陌生”的身影，他们在见到别人作相似动作的时候就会想起我们，就会谈起我们，关于我们每日行为（习惯的一角）、神态、甚至个性的评论也会变成风一样的东西传播到很远。每个人心中都有一杆秤——都会judge，~~别给他们污蔑我们的机会~~用行动去证明自己是怎样的人，不要被别人的口水淹没，相反，利用他们。具体在生活中就是：面对微笑、目光坚定、规律作息、挥洒汗水、努力学习。
+
+### STRATEGIES FOR DEEPENING  THE MENTOR DYNAMIC
+
+保持终身学习的心态，但是学习的形式可以是被动吸收，**更要主动去问、去交流、去发表意见**。站在对方的角度来讲，看到我说了这么多有价值、独到的信息他会卸下戒备，不分享一些会愧疚。
+
+#### 1. Choose the mentor according to your needs and inclinations
+
+> the struggle had strengthened his sense of identity.
+
+> Do not simply choose the first possible mentor who crosses your path.
+
+> the Mentor Dynamic replays something of the parental or father-figure dynamic.
+
+像不是完全一样，意味着有不同。
 
 
 ## IV SEE PEOPLE AS THEY ARE: SOCIAL INTELLIGENCE
