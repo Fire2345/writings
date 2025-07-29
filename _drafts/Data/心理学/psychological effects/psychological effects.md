@@ -1,0 +1,1 @@
+心理学效应。[Psychological effects](https://en.wikipedia.org/wiki/List_of_psychological_effects) refer to **phenomenon**s of thinking that are influenced by **external** factors.
